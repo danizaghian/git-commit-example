@@ -4,7 +4,7 @@ ingredients
 1 14 1/2 ounce can vegetable broth
 1/3 cup quick-cooking barley
 1/3 cup quinoa, rinsed and drained
-1 medium onion, chopped
+1 medium red onion, chopped
 2 cloves garlic, minced
 2 tablespoons olive oil
 1 14 1/2 ounce can diced tomatoes, drained
